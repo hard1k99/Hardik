@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Work
 - 🌱 I’m currently learning ...How not to be rude
 - 💞️ I’m looking to collaborate on ...Money
-- 📫 How to reach me ...Simple Die first
+- 📫 How to reach me ...Am i that much impressive (mail-tomarhardik8@gmail.com)
 
 <!---
 hard1k99/hard1k99 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
